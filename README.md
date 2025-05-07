@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NC4004
-- 👀 I’m interested in Fortnite, Super Smash Bros Ultimate, Roblox, Minecraft
+- 👀 I’m interested in Fortnite 
 - 🌱 I’m currently learning Game Development
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 
